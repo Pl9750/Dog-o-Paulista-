@@ -1,1 +1,1 @@
-# Dog-o-Paulista-
+# Dogão Paulista-
